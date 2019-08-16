@@ -19,3 +19,5 @@ _Il aime se faire manger_
 ~~Et le pâtissier recréait des biscuits~~
 
 En début de journée, Ti-Biscuit et son complice partent se promener en forêt quand soudain un méchant loup surgit d'un buisson et essaie d'attaquer notre ami pour récuperer les provisions qu'il transportait. Heureusement qu'il était accompagné de son complice de tous les jours !
+
+Ce complice, surnommé **L'ours de Sibérie**, n'est autre qu'un pélican. Pélican qui ne vient absolument pas de Sibérie, et qui n'en est pas moins un ours. Posons ça là et résolvons un mots-croisés.
