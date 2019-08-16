@@ -21,3 +21,10 @@ _Il aime se faire manger_
 En début de journée, Ti-Biscuit et son complice partent se promener en forêt quand soudain un méchant loup surgit d'un buisson et essaie d'attaquer notre ami pour récuperer les provisions qu'il transportait. Heureusement qu'il était accompagné de son complice de tous les jours !
 
 Ce complice, surnommé **L'ours de Sibérie**, n'est autre qu'un pélican. Pélican qui ne vient absolument pas de Sibérie, et qui n'en est pas moins un ours. Posons ça là et résolvons un mots-croisés.
+
+<br/>
+<br/> Revenons à cette confrontation avec le loup. 
+<br/>Ti-Biscuit profite de sa petite taille pour se faufiler entre les pattes du loup, qui fait volte-face et fait claquer sa mâchoire dans une tentative de le haper...
+<br/>*Raté !* Dans un même geste, Ti-Biscuit ramasse un gravillon et le lance dans l'oeil du loup.
+<br/>Celui-ci gémit de douleur tandis que l'âne lui assène de toute sa force un coup de ses deux jambes postérieures. Le loup est projeté dans les buissons.
+<br/> 
