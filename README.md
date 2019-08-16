@@ -32,3 +32,5 @@ Mais tout cela n'est pas facile a atteindre. Il faut effectivement passer par un
 Heureusement pour lui, Marcus a été selectionné par un collectif de fan pour y passer la journée sans les soucis administratifs. 
 
 ## Le loup hurle, le chat miaule et la souris sourit..test.
+
+Hé Cindy, ça te dit un ciné samedi ? Ouaii ! Ca me dit !
