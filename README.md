@@ -19,3 +19,8 @@ _Il aime se faire manger_
 ~~Et le pâtissier recréait des biscuits~~
 
 En début de journée, Ti-Biscuit et son complice partent se promener en forêt quand soudain un méchant loup surgit d'un buisson et essaie d'attaquer notre ami pour récuperer les provisions qu'il transportait. Heureusement qu'il était accompagné de son complice de tous les jours !
+<br/>
+<br/>Ti-Biscuit profite de sa petite taille pour se faufiler entre les pattes du loup, qui fait volte-face et fait claquer sa mâchoire dans une tentative de le haper...
+<br/>*Raté !* Dans un même geste, Ti-Biscuit ramasse un gravillon et le lance dans l'oeil du loup.
+<br/>Celui-ci gémit de douleur tandis que l'âne lui assène de toute sa force un coup de ses deux jambes postérieures. Le loup est projeté dans les buissons.
+<br/> 
