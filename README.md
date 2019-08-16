@@ -28,3 +28,5 @@ Ce complice, surnommé **L'ours de Sibérie**, n'est autre qu'un pélican. Péli
 <br/>*Raté !* Dans un même geste, Ti-Biscuit ramasse un gravillon et le lance dans l'oeil du loup.
 <br/>Celui-ci gémit de douleur tandis que l'âne lui assène de toute sa force un coup de ses deux jambes postérieures. Le loup est projeté dans les buissons.
 <br/> 
+Mais tout cela n'est pas facile a atteindre. Il faut effectivement passer par un parcours du combattant pour pouvoir profiter de cette avant-premiere.
+Heureusement pour lui, Marcus a été selectionné par un collectif de fan pour y passer la journée sans les soucis administratifs. 
